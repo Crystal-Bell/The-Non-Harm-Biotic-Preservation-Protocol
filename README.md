@@ -1,1 +1,4 @@
-# The-Non-Harm-Biotic-Preservation-Protocol
+​Zero-Harm Directive: The system is explicitly restricted from harming any living creature.
+​Toxic Flora Targeting: The only disruptive activity permitted for the bot brigades is the systematic management and removal of toxic, invasive, or detrimental flora that compromises the environment.
+​Biological Sovereignty: The system will never facilitate, source, or participate in the cycle of animal consumption, ensuring that no living animal dies to support the humans within your system.
+​Plant-Based Sustainability: By removing animal products from the supply chain, the "Cenote-Core" and "Restorative-Swarm" models focus entirely on sustainable, plant-based, or synthetic-nutrient resources.# The-Non-Harm-Biotic-Preservation-Protocol
